@@ -1,2 +1,0 @@
-# junkie-killer
-schadenfreude
